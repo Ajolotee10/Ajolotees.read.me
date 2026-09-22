@@ -12,13 +12,19 @@ ___
 
 ## ₘₒᵣₑ ᵢₙfₒ!
 
-### - Im bisexual!! im single so, ladies ladies, one at a time! /silly
+- ### Im bisexual!! im single so, ladies ladies, one at a time! /silly
 
-### - to be added more
+- ### Im neurodivergent! i am HSP!(**highly sensible person**) but might be *possible* autistic/adhd!!
+
+- ### Im a cat therian!! a blue russian cat to be specific!!
+
+- ### i like a lot of things and hate others, you can check in my [strawpage!](https://ajoloteesamazingsite.straw.page/)!!
 
 ___
 
 ## Fₐₙdₒₘₛ!
+
+
 
 ___
 
