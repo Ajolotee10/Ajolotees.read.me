@@ -1,22 +1,15 @@
-<head>
- 
  # ₐⱼ'ₛ ᵣₑₐd.ₘₑ!!
 
 ### _its a small page to know me better!_
 
-</head>
-
 ___
 
-<body>
- 
 # ₙₐₘₑ ₐₙd ₚᵣₒₙₒᵤₙₛ!
 
 ### Hellow!! Im **Ajolotee** but u can call me **Aj or Cylux**!!
 
 ### I go by **neutral pronouns(they/it)!!** Im also a **mirrorpronomial**, so i use mirrorpronouns(use **ur** pronouns on **me**)!
  
- </body>
  ___
 
 ## ₘₒᵣₑ ᵢₙfₒ!
@@ -33,8 +26,10 @@ ___
 
 ___
 
-## Fₐₙdₒₘₛ!
+## ₜₒₚ Fₐₙdₒₘₛ!
 
+Yaelokre - Pretty much active
+OSC - Active
 
 
 ___
@@ -48,17 +43,17 @@ ___
 
 [Roblox]()
 
-[Spotify]()
+[Spotify](https://open.spotify.com/user/31marot7lcf4f7scf2l2azthdmpe?si=_vd2QIN8QmaScw67cvUheg&utm_source=native-share-menu&feature=campfire_invite&new_message_invite=true&locale=en&_branch_match_id=1630989769718817242&utm_medium=sharing&_branch_referrer=H4sIAAAAAAAAA8soKSkottLXLy7IL8lMq9TLyczL1jc3LQ8O8ajwcTZLsq8rSk1LLSrKzEuPTyrKLy9OLbJ1zijKz00FAD8pdYI6AAAA)
 
 [Steam]()
 
 [Medal]()
 
-[Discord]()
+Discord(ID: 1509317767919042603)
 
 [Ibispaint]()
 
-[Patreon]()
+[Patreon](https://patreon.com/Ajolotee_s?utm_medium=unknown&utm_source=join_link&utm_campaign=creatorshare_creator&utm_content=copyLink)
 
 __
 
