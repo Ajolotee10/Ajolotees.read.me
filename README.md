@@ -26,15 +26,39 @@ ___
 
 ___
 
-## ₜₒₚ Fₐₙdₒₘₛ!
+## ₜₒₚ 3 Fₐₙdₒₘₛ!
 
 Yaelokre - Pretty much active
+
 OSC - Active
 
+Hamilton - Active
 
 ___
 
-## Dₙᵢ!
+## Dₙᵢ/ᵢWₑC!
+
+List of people that makes me a bit uncomfortable/i dont want to have around/friend because it bothers me. if u are one of these, pls iwvec or dni depending on who u are in the list (see below) vv
+
+Meanings!
+
+IWVEC ☆
+
+DNI ✪
+
+---
+
+Problematic people - ☆
+
+Predators - ✪
+
+Homophobes - ✪
+
+Dark-shippers - ☆
+
+Toxic people - ✪
+
+Boundary breakers - ☆
 
 ___
 
@@ -59,6 +83,22 @@ __
 
 ## ₛₕₒᵤₜ ₒᵤₜₛ!
 
+to my irl twin brother xyler!
+
+to my online brother BonninBonninjr.!
+
+to my irl cousin MaybeSebastian!
+
+to my irl cousins Vicky and Gaby(shhh, we dont talk abt lil fernando)
+
+to my online-soon-to-be-irl friend RayoXD_32!
+
+to my oomfs: Popcorn, Sod, jade, bonkerz, gypsey, aki, nerdyaa, eddie, binjour, untitled, evy, shortcake, terrified six, folkadeare!!
+
+more to be added!!
+
 __
 
 # ₜₕₐₙₖ yₒᵤᵤ!!!
+
+TANKIU FOR READING MY READ.ME!! HEHEHEH SENDING LOVE TO EVERYONEEEE!!! <33
