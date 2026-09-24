@@ -36,7 +36,7 @@ Hamilton - Active
 
 ___
 
-## Dₙᵢ/ᵢWₑC!
+## Dₙᵢ/ᵢWvₑC!
 
 List of people that makes me a bit uncomfortable/i dont want to have around/friend because it bothers me. if u are one of these, pls iwvec or dni depending on who u are in the list (see below) vv
 
