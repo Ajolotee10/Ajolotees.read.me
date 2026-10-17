@@ -9,7 +9,7 @@ ___
 
 # ₙₐₘₑ ₐₙd ₚᵣₒₙₒᵤₙₛ!
 
-### Hellow!! Im **Ajolotee** but u can call me **Aj or Cylux**!!
+### Hellow!! Im **Ajolotee** but u can call me **Aj or Cylux/Arho/Zudo/Rgaby(Ru-ga-by)/Tevy**!!
 
 ### I go by **neutral pronouns(they/it)!!** Im also a **mirrorpronomial**, so i use mirrorpronouns(use **ur** pronouns on **me**)!
  
