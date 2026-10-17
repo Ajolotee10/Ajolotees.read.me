@@ -3,6 +3,9 @@
 ### _its a small page to know me better!_
 
 ___
+<img width="335" height="597" alt="copyImage" src="https://github.com/user-attachments/assets/563f3255-b720-4650-9c64-437c8fbcc2a5" />
+
+___
 
 # ₙₐₘₑ ₐₙd ₚᵣₒₙₒᵤₙₛ!
 
@@ -20,7 +23,9 @@ ___
 
 - ### Im a cat therian!! a blue russian cat to be specific!!
 
-- ### i like a lot of things and hate others, you can check in my [strawpage!](https://ajoloteesamazingsite.straw.page/)!!
+- ### Im a sys(system)!
+
+- ### i like a lot of things and hate others, you can check in my [strawpage!](https://ajoloteesamazingsite.straw.page/)!!(redoing it)
 
 - ### sign my [atabook!!](https://ajoloteesamazing.atabook.org/)
 
@@ -102,3 +107,5 @@ __
 # ₜₕₐₙₖ yₒᵤᵤ!!!
 
 TANKIU FOR READING MY READ.ME!! HEHEHEH SENDING LOVE TO EVERYONEEEE!!! <33
+
+<img width="640" height="640" alt="copyImage" src="https://github.com/user-attachments/assets/fa27a54f-c1ab-45b8-9acc-9d2c02d7e949" />
