@@ -84,6 +84,8 @@ Discord(ID: 1509317767919042603)
 
 [Patreon](https://patreon.com/Ajolotee_s?utm_medium=unknown&utm_source=join_link&utm_campaign=creatorshare_creator&utm_content=copyLink)
 
+[Tiktok](https://www.tiktok.com/@cylux_011?lang=en)
+
 __
 
 ## ₛₕₒᵤₜ ₒᵤₜₛ!
