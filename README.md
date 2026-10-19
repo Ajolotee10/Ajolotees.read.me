@@ -25,9 +25,11 @@ ___
 
 - ### Im a sys(system)!
 
-- ### i like a lot of things and hate others, you can check in my [strawpage!](https://ajoloteesamazingsite.straw.page/)!!(redoing it)
+- ### i like a lot of things and hate others, you can check in my [strawpage](https://ajoloteesamazingsite.straw.page/)!!(redoing it)
 
 - ### sign my [atabook!!](https://ajoloteesamazing.atabook.org/)
+
+- ### see my [prns page!](https://pronouns.cc/@Ajolot33)
 
 ___
 
